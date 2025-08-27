@@ -1,15 +1,15 @@
 　　　　　＿＿＿＿<br/>
 　　　　 ／∵∴∵∴＼<br/>
 　　　 /∵∴／∴∵＼＼<br/>
-　　　/∵∴●∴∴.●　|<br/>　　
-　　　|∵∵∵／ ●＼∵|<br/> 　
-　　　|∵∵ /三　|　三|　|<br/>　　
-　　　|∵∵ |＼＿|＿／| |<br/>　
-　　　 ＼∵ |　＼__ノ　.|／<br/>　
+　　　/∵∴●∴∴.●　|<br/>
+　　　|∵∵∵／ ●＼∵|<br/>
+　　　|∵∵ /三　|　三|　|<br/>
+　　　|∵∵ |＼＿|＿／| |<br/>
+　　　 ＼∵ |　＼__ノ　.|／<br/>
 　　　／　＼|＿＿＿／＼<br/>
 「Don't think. Feel and you'll be terazosin」
 
-I'm 23 years old I use any pronouns<br/>
+I'm 23 years old and I use any pronouns<br/>
 https://horsebox.straw.page/
 <img width="300" height="168" alt="Image" src="https://github.com/user-attachments/assets/9dff7121-1d75-4410-b49a-7946af53e5df" />
 
