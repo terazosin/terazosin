@@ -1,4 +1,7 @@
-https://github.com/terazosin/Waaah/blob/main/terazosin.png
 I'm 23 years old
 https://horsebox.straw.page/
-https://github.com/terazosin/Waaah/blob/main/Screenshot%202025-08-25%20193758.png
+<img width="300" height="168" alt="Image" src="https://github.com/user-attachments/assets/9dff7121-1d75-4410-b49a-7946af53e5df" />
+
+<img width="458" height="317" alt="Image" src="https://github.com/user-attachments/assets/10fe6cc9-f20d-4044-8fb3-c3a77c1dc488" />
+
+<img width="720" height="116" alt="Image" src="https://github.com/user-attachments/assets/e7988244-d5d7-4835-b07c-7cbd892ed8a5" />
