@@ -7,7 +7,7 @@
 　　　|∵∵ |＼＿|＿／| |<br/>
 　　　 ＼∵ |　＼__ノ　.|／<br/>
 　　　／　＼|＿＿＿／＼<br/>
-「Don't think. Feel and you'll be terazosin」
+「Don't think. Feel and you'll be terazosinn」
 
 I'm 23 years old and I use any pronouns<br/>
 https://horsebox.straw.page/
