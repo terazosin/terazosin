@@ -15,4 +15,6 @@ I'm 24 years old and I use any pronouns<br/>
 
 <img width="458" height="317" alt="Image" src="https://github.com/user-attachments/assets/10fe6cc9-f20d-4044-8fb3-c3a77c1dc488" />
 
-<img width="720" height="116" alt="Image" src="https://github.com/user-attachments/assets/e7988244-d5d7-4835-b07c-7cbd892ed8a5" />
+<img width="833" height="57" alt="Image" src="https://github.com/user-attachments/assets/30e6cc4f-97b7-4251-9fbe-70d51579ae07" />
+
+<img width="603" height="472" alt="Image" src="https://github.com/user-attachments/assets/ffd43e96-88e2-4d39-b52a-c6ef0c074e83" />
