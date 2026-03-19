@@ -19,4 +19,4 @@ I'm 24 years old and I use any pronouns<br/> I<3Lurking
 
 <img width="603" height="472" alt="Image" src="https://github.com/user-attachments/assets/ffd43e96-88e2-4d39-b52a-c6ef0c074e83" />
 
-![](https://komarev.com/ghpvc/?username=your-github-username&label=CAPTURED+SOULS&color=ff69b4)
+![](https://komarev.com/ghpvc/?username=terazosin&label=CAPTURED+SOULS&color=lightgrey)
