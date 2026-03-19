@@ -18,6 +18,3 @@ I'm 24 years old and I use any pronouns<br/> I<3Lurking
 <img width="833" height="57" alt="Image" src="https://github.com/user-attachments/assets/30e6cc4f-97b7-4251-9fbe-70d51579ae07" />
 
 <img width="603" height="472" alt="Image" src="https://github.com/user-attachments/assets/ffd43e96-88e2-4d39-b52a-c6ef0c074e83" />
-
-<img width="1080" height="360" alt="image" src="https://github.com/user-attachments/assets/218b250b-494e-4061-8bb3-61b02fb98d25" />
-
