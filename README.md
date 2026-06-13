@@ -1,14 +1,3 @@
-　　　　　＿＿＿＿<br/>
-　　　　 ／∵∴∵∴＼<br/>
-　　　 /∵∴／∴∵＼＼<br/>
-　　　/∵∴●∴∴.●　|<br/>
-　　　|∵∵∵／ ●＼∵|<br/>
-　　　|∵∵ /三　|　三|　|<br/>
-　　　|∵∵ |＼＿|＿／| |<br/>
-　　　 ＼∵ |　＼__ノ　.|／<br/>
-　　　／　＼|＿＿＿／＼<br/>
-「Don't think. Feel and you'll be terazosinn」
-
 I'm 24 years old and I use any pronouns<br/> I have <img width="60" height="64" alt="Image" src="https://github.com/user-attachments/assets/27aab627-9b9a-4dfc-843d-fb54d8d0ed1f" />
 <img width="27" height="60" alt="Image" src="https://github.com/user-attachments/assets/581712f2-dfa2-48d2-896b-0a3e458b0d01" /> <img width="37" height="43" alt="Image" src="https://github.com/user-attachments/assets/a67e0146-c915-4772-af49-2fc61f47dec1" /> <img width="51" height="63" alt="Image" src="https://github.com/user-attachments/assets/be1b7cc2-53bf-4d12-8687-b10fe4cc94bc" /> sorry<br/>
 I don't want minors to interact with me IDC besides that
