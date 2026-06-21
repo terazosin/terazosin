@@ -1,4 +1,4 @@
-I'm 24 years old and I use any pronouns<br/> I',m <img width="60" height="64" alt="Image" src="https://github.com/user-attachments/assets/27aab627-9b9a-4dfc-843d-fb54d8d0ed1f" />chizotypal sorry<br/>
+I'm 24 years old and I use any pronouns<br/> I'm <img width="60" height="64" alt="Image" src="https://github.com/user-attachments/assets/27aab627-9b9a-4dfc-843d-fb54d8d0ed1f" />chizotypal<br/>
 I don't want minors to interact with me I don't care about anything else
 
 <img width="300" height="168" alt="Image" src="https://github.com/user-attachments/assets/9dff7121-1d75-4410-b49a-7946af53e5df" />
